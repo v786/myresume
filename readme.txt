@@ -1,7 +1,7 @@
-This resource has been created by elemis for http://elemisfreebies.com
+This resource has been copied from elemis for http://elemisfreebies.com
 
 
-TERMS OF USE:
+TERMS OF USE NOT AGREED UPON:
 
 All royalty free stock layered PSD’s (except web templates), patterns, textures, design elements, themes and other design resources on this website are free for use in both personal and commercial projects .
 
@@ -14,6 +14,6 @@ If you use/modify the resources in your projects please linkback to the resource
 If you should have any questions please contact us here: http://elemisfreebies.com/contact/
 
 
--elemis
+Don't Bother To Visit-
 Visit our portfolio: http://elemisfreebies.com/portfolio
 
